@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **sadanandjaiswal92@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1sDlxWlSjMMegLCJafdF8Pvq_L-pEtXAn/view](https://drive.google.com/file/d/1sDlxWlSjMMegLCJafdF8Pvq_L-pEtXAn/view)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1mpKDqAvkVNBiEkVcFuavS-hBqwdq6Goh/view?usp=sharing](https://drive.google.com/file/d/1mpKDqAvkVNBiEkVcFuavS-hBqwdq6Goh/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
